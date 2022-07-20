@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with the school
 - 💬 Ask me about football
 - 📫 How to reach me: carlos.anjos@al.estudante.senai.br
-- 😄 Pronouns: ele
+- 😄 Pronouns: he
 - ⚡ Fun fact: friends
 
